@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @qvcz
 - 👀 I’m interested in coding Java.
 - 🌱 I’m currently learning Java.
-- 💞️ I'm looking for art "comissions" at moneroenjoyer#7245
-- 📫 How to reach me moneroenjoyer#7245
+- 📫 Reach me at ;
+- 😎 xoc#7245
